@@ -1,4 +1,4 @@
-### Hi there 👋
+### Relax! be patient and enjoy yourself. learning foreign languages should be fun 👋
 
 <!--
 **washingtonsoares3vz1ch/washingtonsoares3vz1ch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
